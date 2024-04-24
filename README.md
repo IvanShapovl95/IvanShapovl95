@@ -2,7 +2,7 @@
 - 👀 I’m interested in QA Engineer, Powerlifting, Family.
 - 🌱 I’m currently learning in School Testppro.
 - 💞️ I’m looking to collaborate on firms IT
-- 📫 How to reach me avaciy3777@mail.ru, telegram +79135839473
+- 📫 How to reach me avaciy3777@mail.ru, telegram @iVan_Shapovalov_95
 - 😄 Pronouns: ...
 - ⚡ Fun fact: 
 
